@@ -1,1 +1,1 @@
-# Global-Economic-Risk-Volatility-Analysis-1961-2023-
+# Global-Economic-Risk-Volatility-Analysis-1961-2023
